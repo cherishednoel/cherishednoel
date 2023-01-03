@@ -1,5 +1,5 @@
 ### Welcome
-Hi, I'm Noel♥ I'm currently studying computer engineering at Chiang Mai University right now. I also love to play games and watch animes. Nice to meet you all, and thanks for the love and support! ♥~
+Hi, I'm Noel❤️ I'm currently studying computer engineering at Chiang Mai University right now. I also love to play games and watch animes. Nice to meet you all, and thanks for the love and support!❤️~
 
 <!--
 **cherishednoel/cherishednoel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
