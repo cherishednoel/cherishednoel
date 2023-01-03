@@ -1,7 +1,7 @@
 ### Welcome
 Hi, I'm Noel❤️ I'm currently studying computer engineering at Chiang Mai University right now. I also love to play games and watch animes. Nice to meet you all, and thanks for the love and support!❤️~
 
-### What am I studying right now ?
+### What am I learning about right now ?
 * C++ language
 
 <!--
